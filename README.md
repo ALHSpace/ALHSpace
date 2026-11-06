@@ -55,6 +55,6 @@ Ill add more later im too tired for this rn
 
 </details>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2uev8vwz85bu18jyqhnf5cka5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=7a0606&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2uev8vwz85bu18jyqhnf5cka5&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=257a06&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="400" height="33" alt="tumblr_e5f35fff7d2975191507a8f4034f9eca_b1062602_400" src="https://github.com/user-attachments/assets/7331eedb-149b-4bb8-ac1c-f118fda55536" />
