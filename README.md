@@ -1,6 +1,6 @@
 <img width="400" height="33" alt="tumblr_579ff9585634c04ccab19ff4fede159e_e20db29a_400" src="https://github.com/user-attachments/assets/8873d93b-bb56-421f-912a-073343f85c21" />
 
-Hello Guys (﹡ˆ﹀ˆ﹡)
+Hello Guys (﹡ˆ﹀ˆ﹡)   . . . Ill probably remake this and my strawpage at some point.
 
 <img width="400" height="51" alt="tumblr_46cf5ebf348ed5c241c0ddb374615a55_5335dc47_400" src="https://github.com/user-attachments/assets/b225b126-e605-46dd-8aa3-e9356c228b52" />
 
@@ -35,10 +35,12 @@ All my info can be found in my strawpage. Please go read it. Sign my atabook too
 <summary>Interaction info!</summary>
  <img width="120" height="67" alt="tumblr_95ee6be4c4c214eabb59205f3ca47b38_8b7aba6a_250" src="https://github.com/user-attachments/assets/0c1924fb-892c-4b77-9e06-aa3e6b7b78f1" />
   
-   Cuddles / Hugs / Kisses / nuzzles , any / all interaction with my pony is greatly encouraged unless otherwise ! 
+   Cuddles / Hugs / Kisses / nuzzles , any / all interaction with my pony is greatly encouraged unless stated otherwise ! 
   Im *always* whisper to interact as im 95% likely to be off tab. Please be patient for me to respond to your messages if I do not see them right away
   My name usually has what im doing or what im feeling.
-  Nonsharers DO NOT INTERACT WITH ME. I do not care what we have in common
+  Nonsharers DO NOT INTERACT WITH ME. I do not care what we have in common. Soft shaerers, if you share a yume with my pony and get uncomfy, PLEASE TELL ME.  I will change the pony I have on, its no issue at all I promise <3
+  If im sitting awkwardly on someone, I probably have them hidden or blocked for some reason. I both block and hide freely. Please dont take it to heart.
+  Please do not entirely block my pony. It upsets me. Im only alright with it if its for cuddling purposes or initiated by me.
   </details>
 <img width="400" height="16" alt="tumblr_58caefac717645867301a38893b47028_7f1f1618_400" src="https://github.com/user-attachments/assets/36eb2c16-3d79-4dd5-b048-8c14082ae025" />
 <details>
